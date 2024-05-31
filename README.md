@@ -1,2 +1,0 @@
-# connormoynahan.com
-connormoynahan.com
